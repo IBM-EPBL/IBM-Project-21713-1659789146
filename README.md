@@ -17,6 +17,6 @@ Team member : SEMBARUTHI N
 
 Team member : NIVETHA N
 
-Industry Mentor(s) Name : Shivani Kapoor, Indra Prakash, Mentor 8
+Industry Mentor(s) Name : Divya
 
 Faculty Mentor(s) Name : SINDHUJA S
